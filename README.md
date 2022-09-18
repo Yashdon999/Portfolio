@@ -1,14 +1,2 @@
 # Portfolio
 My portfolio
-
-
-slkdfjlksdjf;lsdj;sldkjfsldkdfjsldkkfjsldkkfjsldkfjalskdjfl;ksdkj
-slkfjsl;dkjfs;ldjf;asldskjfsa;ldkdkjf;slasdkfjaslddfj;aslddkfjls;dfj;lsdfj
-s;alsdkjfalsddjf;laskdjflsjflassjdfas;lddjflsjf;lasdjlsdjflasddjf;lsadjf;lsadkjf;lasdfj
-;aslkdkjf;lsadkjf;alsdkkjf;lsdkjfs;lkdjf;alkjfa;lsdkjflsdjf;lksdjdfl;skdjf;dslfjsld.fjk;sdlkjflsdjfj
-a;sldjf;lasdjflksdjfladjflskdjfkdfj;lsdkdkjf;lskdkjfsd;lkkjfsldkkdfja;slkkjf;lksdajfdals;djdflkdsjfa;lsdjfj
-;lasjf;lkjassdlfj;lsajflkjaslkjflksjfljlasjfljasclksdjflckuhs,nckashdcvsasiohcvghjklsdfghjklwertyuiosdfghjkldfghjk
-qwertyuiopasdfghjkl;'zxcvbnm,./qwertyuiopasdfghjklxcvbnm,.asdfghjklsdfghjklszdxfcgvhbjnkml,.zsxdcfgvbhjnkml,zrxctfvghbjkml
-zwexcrdtfvbgyunimo,p.[/wzsexdcrtfvbgynhuijmok,p.zwexsrdctfvygbunhijmok,p.zwaesxdrctfvgybhunimo,p.zwaexsrdctfvrbgyuhynijmok,l.;'/
-wzexcrtvbynuimo,p.awzesxdcrtfvbgyunhijmok,wzesxdfcgvbhjnkml,zwexrdctfgvhbjnkml,zsxtdcyfvgubihnjqwrzetxrdyctgfvbkjwrewztrxdctyfvgbhjnmezsrxdctfgvbhj
-kdfljcnmijfklsdncmuidk,n aklujsh.dfjnckdanvclkk.sjamvlcuaislkjdnxvcyahdbnfvcoailkjmvciljka,dnmgvcyihkau,sndfcvx oiljk.asefdoizcxljk,nmdiufvkjlnasluli;dfkjcvakslkfdvc
