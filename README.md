@@ -1,11 +1,3 @@
 # Portfolio
 My Portfolio Link :-
 https://yashdon999.github.io/Portfolio/
-
-
-hkkjhljhjlkj
-klj;lljk;jlk
-hhjlhlkjj
-hkkhlkj
-khljkjhkj
-kjljklkjkj
