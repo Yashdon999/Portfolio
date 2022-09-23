@@ -7,7 +7,6 @@ https://yashdon999.github.io/Portfolio/
 
 .m.mlmlkm
 
-lkjkljlkjlk
 
 kjkjjkkj
 
