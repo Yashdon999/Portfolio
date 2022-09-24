@@ -8,17 +8,3 @@ asdf
 asdf
 sdg
 sdfa
-asdf
-asfd
-sfasf
-erfsf
-asdf
-asdf
-asdf
-asfd
-asdf
-asfsdf
-asdfasf
-asdfasf
-asdf
-
