@@ -10,7 +10,6 @@ xcvb
 dsf
 
 sdaS
-SDFJJK
 JJK
 DSF
 AFSD
