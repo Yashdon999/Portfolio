@@ -9,7 +9,6 @@ zxvc
 xcvb
 dsf
 vc
-vc
 sdf
 sdf
 sdaS
