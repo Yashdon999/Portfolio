@@ -5,8 +5,6 @@ https://yashdon999.github.io/Portfolio/
 
 aws
 sdfg
-
-dfb
 zxvc
 vxzcv
 xcvb
