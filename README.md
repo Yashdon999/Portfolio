@@ -8,7 +8,6 @@ kjnj
 kjkj
 lkj
 kjjn
-jjjjnnjk
 kjjkkj
 jnj
 ,jn
