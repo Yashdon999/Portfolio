@@ -7,6 +7,5 @@ kjnj
 lkj
 kjjkkj
 jnj
-,jn
 jn
 j
