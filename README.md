@@ -6,7 +6,6 @@ kjhk
 kj
 kjnj
 kjkj
-kjkjhkj
 lkj
 kjnkkj
 kjjn
