@@ -11,7 +11,6 @@ kjjn
 kjjkkj
 jnj
 ,jn
-kj
 j
 jn
 j
