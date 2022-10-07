@@ -11,7 +11,6 @@ lkj
 kjnkkj
 kjjn
 jjjjnnjk
-kjkjkjjk
 kjjkkj
 iuu
 iukj
